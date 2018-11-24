@@ -1,1 +1,1 @@
-smatyseck.github.io
+https://smatyseck.github.io
